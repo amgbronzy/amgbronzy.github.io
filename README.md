@@ -10,3 +10,13 @@ THANKS FOR VISITING MY profile
 
 ##CONNECT WITH ME 
 Instagram:@bronzyamg](https://www.instagram.com/bronzyamg/)
+
+## Skills
+
+- Digital projects
+
+- Technology
+
+- Creative work
+
+- GitHu
