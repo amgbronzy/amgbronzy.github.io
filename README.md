@@ -1,12 +1,36 @@
-# AMG BRONZY
-WELCOME TO MY GITHUB PROFILE 
-## About me 
-I’M AMG BRONZY
-## WHAT I DO
--Technology 
--Digital project
--Greative work 
-THANKS FOR VISITING MY profile
+👨‍💻 About Me
+
+* 🔥 Building and exploring new ideas
+* 💻 Interested in technology and digital projects
+* 🚀 Always learning and improving
+* 🌍 Based in Ghana
+
+⸻
+
+🛠️ What I’m Working On
+
+I’m currently exploring projects, learning new skills, and building my online presence.
+
+⸻
+
+📌 My Goals
+
+* Learn more about technology
+* Build useful projects
+* Connect with other creators and developers
+* Keep growing and improving
+
+⸻
+
+🌐 Connect With Me
+
+📸 Instagram: @bronzyamg⁠￼
+
+⸻
+
+⭐ Thanks for visiting my profile!
+
+AMG BRONZY
 
 ##CONNECT WITH ME 
 Instagram:@bronzyamg](https://www.instagram.com/bronzyamg/)
