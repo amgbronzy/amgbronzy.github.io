@@ -20,3 +20,9 @@ Instagram:@bronzyamg](https://www.instagram.com/bronzyamg/)
 - Creative work
 
 - GitHu
+
+## Projects
+
+I'm currently building and exploring digital projects.
+
+More projects coming soon.
