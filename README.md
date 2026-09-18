@@ -48,3 +48,4 @@ Instagram:@bronzyamg](https://www.instagram.com/bronzyamg/)
 I'm currently building and exploring digital projects.
 
 More projects coming soon.
+<meta name="google-site-verification" content="ARoxFOLSNd9IazgZbNQ_k_osvk3RCKvQyNUeKDFNQcg" />
