@@ -9,4 +9,4 @@ I’M AMG BRONZY,and this is my official GitHub profile
 THANKS FOR VISITING MY profile
 
 ##CONNECT WITH ME 
-Instagram:bronzyamghttps://instagram.com/bronzyamg
+Instagram:@bronzyamg](https://www.instagram.com/bronzyamg/)
