@@ -1,7 +1,7 @@
 # AMG BRONZY
 WELCOME TO MY GITHUB PROFILE 
 ## About me 
-I’M AMG BRONZY,and this is my official GitHub profile 
+I’M AMG BRONZY
 ## WHAT I DO
 -Technology 
 -Digital project
