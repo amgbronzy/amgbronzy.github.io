@@ -1,26 +1,24 @@
+👑 AMG BRONZY
+
+Welcome to my GitHub profile! 🚀
+
+I’m AMG BRONZY, interested in technology, web design, coding, and the automotive industry.
+
 👨‍💻 About Me
 
-* 🔥 Building and exploring new ideas
-* 💻 Interested in technology and digital projects
-* 🚀 Always learning and improving
-* 🌍 Based in Ghana
+* 🌐 Web Design
+* 💻 Coding
+* 🚗 Automotive Buying & Selling
+* 🚀 Learning and building new projects
+* 🌍 Ghana
 
-⸻
+🛠️ Skills & Interests
 
-🛠️ What I’m Working On
+Web Design • Coding • Automotive Business
 
-I’m currently exploring projects, learning new skills, and building my online presence.
+🎯 What I’m Working On
 
-⸻
-
-📌 My Goals
-
-* Learn more about technology
-* Build useful projects
-* Connect with other creators and developers
-* Keep growing and improving
-
-⸻
+I’m exploring technology, developing my web skills, and building opportunities in the automotive space.
 
 🌐 Connect With Me
 
