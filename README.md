@@ -7,3 +7,6 @@ I’M AMG BRONZY,and this is my official GitHub profile
 -Digital project
 -Greative work 
 THANKS FOR VISITING MY profile
+
+##CONNECT WITH ME 
+Instagram:bronzyamg
